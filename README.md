@@ -7,4 +7,4 @@
 - Eğitim ve pratik amaçlıdır.
 
 # Tanıtım videosu 
-![amazoncloneClipchampileyapld-ezgif com-video-to-gif-converter](https://github.com/user-attachments/assets/a06a95c1-1f85-4e1a-bf5d-4b72bd159255)
+![amazoncloneClipchampileyapld-ezgif com-video-to-gif-converter](https://github.com/user-attachments/assets/aa3212ac-cd36-4f22-bb21-ebb37153272f)
